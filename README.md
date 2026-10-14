@@ -1,0 +1,1 @@
+# Rozit product images
